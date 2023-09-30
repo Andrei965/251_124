@@ -1,2 +1,1 @@
-La multi ani Calin!
--Andrei
+La mulți ani, Calin! Să ai un an minunat și plin de realizări!
